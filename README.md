@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @TheWolf-101
+- 👀 I’m interested in coding, 3D Printing, and automating the boring parts of life lol.
+- 🌱 I’m currently learning AWS CCP, Cybersecurity, and coding
+- 💞️ I’m looking to collaborate on everything and anything.
+- 📫 Discord: justnoah42069
+- 📫 LinkedIn: https://www.linkedin.com/in/noah-campbell-7a6b86240?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BXenCyzssS%2FeHP0dB571wUA%3D%3D
